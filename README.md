@@ -35,3 +35,20 @@ Pasting all the info from my rentry onto here.
 <p align="center">
 ✧ SPECIFIC INFO FOR THE TFC AREA .
 <p align="center">
+✧ I am going to just put it bluntly because I do not want to sugarcoat this. I am aware the safe server is the most popular server and has all the fandom spots. But, I am also aware that there are minors in this server and I am aware it is a pony game and only natural for teens to play on it. But, I am not appreciative of minors in adult spaces. Interact with EXTREME caution, do not try to form contact with me outside of the game if all you wish to discuss is TFC. You can sit beside me if you really want, but do not make any flirts or sexual jokes towards my skins. You are a minor, I am an adult. You have no business like that with me. And if you know any of my art socials aside from tiktok, DO NOT INTERACT WITH THEM. My art socials are not for minors aside from my tiktok and if I find any minors dollowing me, you will be blocked. I make no exceptions or tolerate boundary crossing. I know nobody can be stopped from playing a game like TFC, but to interact with the fandom is a risk in itself. If you are under 16 and in the fandom, do not interact at all. 16-17 are still not comfortable for me to interact with unless it's with extreme caution. And do not call my Jester "mommy". It was unfunny the first time.
+<p align="center">
+✧ PONYTOWN INFO .
+  <p align="center">
+✧ I am always off-tab so if you need to tell me anything please do so in whispers so I don't miss it.
+    <p align="center">
+✧ C+H is always welcome and encouraged, I don't mind sitting with others and even enjoy it. (Just please don't cover my pony, or if you prefer to sit in front make sure not to cover too much.)
+      <p align="center">
+✧ I am a very quiet person so it's unlikely I'll talk unless you strike up the conversation; I will, of course, respond whenever I see the message.
+        <p align="center">
+✧ If I seem unenthusiastic don't take it personal, it's usually the way I speak with most people, but I try to make my tone seem soft and not angry or too serious.
+          <p align="center">
+✧ I do hide freely, it's nothing personal, I prefer to keep my peace and don't want to bother with disrespectful people.
+            <p align="center">
+✧ CHRONIC crowner, if you're in the fandom I'm in it's very likely I'll crown you if I like your skin.
+              <p align="center">
+✧ I sometimes call people "lovely" or another affecionate name. I don't mean anything by it, but if it bothers you then please let me know so I can stop. I mostly do it to appear nicer, in a way?? Since my text tends to sound too serious, sometimes.
