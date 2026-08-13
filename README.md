@@ -1,7 +1,5 @@
 <p align="center">
 Pasting all the info from my rentry onto here.
-<p align="center">
-  <a href="https://rentry.co/FatalMagnusInfo"> Rentry
 </a> 
   <p align="center">
 ✧ Magnus .
