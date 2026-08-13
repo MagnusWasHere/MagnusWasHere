@@ -33,7 +33,7 @@ Pasting all the info from my rentry onto here.
 <p align="center">
 ✧ SPECIFIC INFO FOR THE TFC AREA .
 <p align="center">
-✧ I am going to just put it bluntly because I do not want to sugarcoat this. I am aware the safe server is the most popular server and has all the fandom spots. But, I am also aware that there are minors in this server and I am aware it is a pony game and only natural for teens to play on it. But, I am not appreciative of minors in adult spaces. I know nobody can be stopped from playing a game like TFC, but to interact with the fandom is a risk in itself. If you are under 17 and in the fandom, do not interact at all. 17 is still not comfortable for me to interact with unless it's with extreme caution. And do not call my Jester "mommy". It was unfunny the first time.
+✧ I am going to just put it bluntly because I do not want to sugarcoat this. I am aware the safe server is the most popular server and has all the fandom spots. But, I am also aware that there are minors in this server and I am aware it is a pony game and only natural for teens to play on it. But, I am not appreciative of minors in adult spaces. I know nobody can be stopped from playing a game like TFC, but to interact with the fandom is a risk in itself. If you are under 17 and in the fandom, do not interact at all in terms of discussing TFC. 17 is still not comfortable for me to interact with unless it's with extreme caution. And do not call my Jester "mommy". It was unfunny the first time.
 <p align="center">
 ✧ PONYTOWN INFO .
   <p align="center">
