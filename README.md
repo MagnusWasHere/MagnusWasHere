@@ -9,8 +9,11 @@ Pasting all the info from my rentry onto here.
 ✧18
         <p align="center">
 ✧It/he. (I would very much prefer to be refererred to with it/it's, but if not then he/him. It's not something to do with gender identity, but the fact I just do not want to be associated with humanity and being called an "it" somehow brings that comfort.
+            <p align="center">
 ✧Artist
+                <p align="center">
 ✧Animator
+                    <p align="center">
 ✧Writer
 <p align="center">
 ✧ INTERESTS .
