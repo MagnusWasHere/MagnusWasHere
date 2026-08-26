@@ -8,7 +8,7 @@ Pasting all the info from my rentry onto here.
       <p align="center">
 ✧18
         <p align="center">
-✧He/him
+✧It/he. (I would very much prefer to be refererred to with it/it's, but if not then he/him. It's not something to do with gender identity, but the fact I just do not want to be associated with humanity and being called an "it" somehow brings that comfort.
 ✧Artist
 ✧Animator
 ✧Writer
