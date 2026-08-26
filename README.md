@@ -53,3 +53,7 @@ Pasting all the info from my rentry onto here.
 ✧ CHRONIC crowner, if you're in the fandom I'm in it's very likely I'll crown you if I like your skin.
               <p align="center">
 ✧ I sometimes call people "lovely" or another affecionate name. I don't mean anything by it, but if it bothers you then please let me know so I can stop. I mostly do it to appear nicer, in a way?? Since my text tends to sound too serious, sometimes.
+  <p align="center">
+✧ VERY IMPORTANT
+      <p align="center">
+✧ I don't enjoy talking about vulnerabilities and especially not my specific disorders or too many details relating to them, but.. I have noticed that lately it's been affecting me a lot. Specifically something that I can't quite name or pinpoint, but I'm assuming is a mix of identity disturbance and depersonalization. Or one of the two. The way I speak, act and think changes drastically at random times and I become uncomfortable with my own name as well as having a hard time feeling like I'm "in control" of myself. Sort of like watching one of those TikTok POVs with a head-mounted camera. If the way I speak to you suddenly changes it's likely that it's happening and not that you've done something wrong for me to change my behaviour around you. I'd go into more detail, but I doubt it's needed or particularly interesting to anyone for me to ramble about the experience unless specifically questioned.
